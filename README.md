@@ -1,4 +1,4 @@
-Jestem nowy? Co mogę robić na serwerze?
+**Jestem nowy? Co mogę robić na serwerze?**
 Zacznijmy od tego, że jest to serwer RolePlay, czyli dzięki swojej grze IN GAME, możemy praktycznie osiągnąć wszystko. Dzięki odpowiednim kontaktom oraz zagrywkom  będziemy w stanie od zwykłego paroba stać się nawet magnatem.
 
 No dobrze, ale co mam robić?
