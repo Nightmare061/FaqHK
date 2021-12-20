@@ -1,7 +1,7 @@
 **Tu znajdziesz przydatne informacje i pomoce w dalszej podróży.**  
 **Zanim poprosisz supporta o pomoc, zajrzyj czy nie znajdziesz tu odpowiedzi.**
   
-  
+##  
 ### Na czym nowy, zielony gracz powinien się skupić?  
 Podstawowa rzecz - **interpunkcja oraz zaczynanie naszej wypowiedzi w każdym z czatów od wielkich liter kończąc na kropce, nie wspominając o ortografii**.  
 *Dla osób grających dłużej w RP na platformie takie podstawowe rzeczy tworzą nam wygląd danego gracza i oddzielają słabszego od lepszego. Jeśli zaczniesz wypowiedź wielką literą i zakończysz kropką, użyjesz interpunkcji w danym momencie lub akcji i będziesz wszystko poprawnie pisał z użyciem ortografii - na pewno wszyscy inni gracze będą o wiele bardziej przystępni do gry z tobą. A chęć do gry to przecież podstawowa zasada RolePlayu i rozwoju naszych postaci.*  
